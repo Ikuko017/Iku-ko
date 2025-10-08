@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Iku-ko
+- 👋 Hi, I’m @Ikuko
 - 📫 How to reach me @gmail.com
 
 <!---
